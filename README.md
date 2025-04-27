@@ -1,1 +1,1 @@
-# RIKA-BOT-PAIR-
+# PAIR-WEB-SC
